@@ -1,4 +1,4 @@
-# 👋 Hi, I'm vidaque!
+# 👋 Hi, I'm Aadith K v!
 
 Welcome to my GitHub profile!
 
